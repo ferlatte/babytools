@@ -16,6 +16,10 @@ You are adults. Adults need sleep. Babies need sleep also, but not the same way 
 
 This is probably because we have twins. We don't have time to deal with parental freakouts because they require food and changing and sleeping and soothing all the time. This is great; all of the concerns about nipple confusion and baby classical music and the other crazy stuff goes away. The kids are alright, just be a mammal.
 
+### Checklists.
+
+You will be braindead a lot. When you are not braindead, make checklists that you can use when you are braindead. Stuff like "all of the daily chores at home" so when you are fried and awake you can look at it and then go "right, I should take out the trash" instead of just standing in your kitchen drooling.
+
 ## Tools
 
 ### [Halo Sleep Sack](http://www.halosleep.com)
