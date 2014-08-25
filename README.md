@@ -56,6 +56,8 @@ Pre-built meals, delivered once/week as component parts. Takes about 45 minutes 
 
 They aren't dying. They are fine. They just sound like they are choking, or breathing hard, or not breathing, or having a heart attack, or being attacked by space goblins. They will make these noises when sleeping and when awake.
 
+This means that even though they are sleeping 2 hours out of every 3, you won't be, because every time they make a noise you will wake up.
+
 ### The not sleeping starts before the baby is born.
 
 Pregnancy is uncomfortable. There will be lots of trips to the bathroom and interrupted sleep. This will come as a surprise, and means that you'll be starting the infant care process already in sleep debt. Say goodbye to hippocampus function and nap as much as you can.
