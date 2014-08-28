@@ -46,17 +46,17 @@ We're using disposable diapers for now. Pampers appear to be the best as far as 
 
 We got a bunch of soft microfiber cloths to keep at the changing table. Useful for drying bottoms (a dry bottom is a non-chafing bottom!) and cleaning up assorted messes.
 
-### Extra changing pad covers
+### Extra [changing pad covers](http://www.diapers.com/p/kushies-deluxe-change-pad-flannel-boy-38335). 
 
-We bought a bunch of [these](http://www.diapers.com/p/kushies-deluxe-change-pad-flannel-boy-38335). You want to be able to wash them easily.
+We bought a bunch of them. You want to be able to wash them easily.
 
-### Nursing pillow
+### [Nursing pillow](http://www.amazon.com/gp/product/B003TSDMH8/)
 
-[This one](http://www.amazon.com/gp/product/B003TSDMH8/) doesn't suck. If you plan on breastfeeding, it's good to have a nice supportive pillow.
+If you plan on breastfeeding, it's good to have a nice supportive pillow.
 
-### Car seat
+### [Chicco Keyfit 30](http://www.amazon.com/Chicco-Keyfit-Infant-Seat-Sedona/dp/B00AHPZZGC/)
 
-We like the [Chicco Keyfit 30](http://www.amazon.com/Chicco-Keyfit-Infant-Seat-Sedona/dp/B00AHPZZGC/) because they are lightweight, easy to use, and easily fit 2 to a back seat. We got [this frame](http://www.amazon.com/Joovy-Twin-Roo-Seat-Stroller/dp/B00B07STA0/) to convert it to a twin stroller.
+We like the Chicco because they are lightweight, easy to use, and easily fit 2 to a back seat. We got [this frame](http://www.amazon.com/Joovy-Twin-Roo-Seat-Stroller/dp/B00B07STA0/) to convert it to a twin stroller.
 
 ### [Munchery](https://www.munchery.com)
 
