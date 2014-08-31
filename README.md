@@ -10,7 +10,7 @@ It has been supremely important to run the laundry, dish washer, and Roomba regu
 
 ### Trade nights.
 
-You are adults. Adults need sleep. Babies need sleep also, but not the same way adults do. Instead of having both of you exhausted and fried from being up all night, trade nights: one adult sleeps with the babies and feeds/sooths/changes them at night, the other sleeps in their own bed with earplugs and an eyemask and sleeps as long as they can. This appears to be working for us; I don't know how long we will sustain it.
+You are adults. Adults need sleep. Babies need sleep also, but not the same way adults do. Instead of having both of you exhausted and fried from being up all night, trade nights: one adult sleeps with the babies and feeds/soothes/changes them at night, the other sleeps in their own bed with earplugs and an eyemask and sleeps as long as they can. This appears to be working for us; I don't know how long we will sustain it.
 
 ### Pragmatism is a good strategy.
 
@@ -28,7 +28,7 @@ These things are pretty great and not super fiddly. We have about 4 per baby in 
 
 ### Hand me down clothing
 
-Don't buy baby clothes; get them from friends who desperately want to get rid of them. Bonus: they are already stained, so you can stop worrying about keeping your baby impeccibly stylish and start worrying about keeping the robots running and taking naps.
+Don't buy baby clothes; get them from friends who desperately want to get rid of them. Bonus: they are already stained, so you can stop worrying about keeping your baby impeccably stylish and start worrying about keeping the robots running and taking naps.
 
 ### [Boon Lawn Countertop Drying Rack](http://smile.amazon.com/Boon-Lawn-Countertop-Drying-Green/dp/B004OR1DTC)
 
@@ -64,7 +64,15 @@ Delivery++. For us, this has meant we've eaten better than take out food when we
 
 ### [Blue Apron](http://www.blueapron.com)
 
-Pre-built meals, delivered once/week as component parts. Takes about 45 minutes to prepare the recipie. Advantage is it's cheaper than Munchery, easier than doing your own shopping, is tasty and healthy. Heads off takeout, plus the menus are pretty broad so you make stuff you might normally not cook. Better once you've started to get your feet underneath you (week 3-5); until then, Munchery and family food is the way to go.
+Pre-built meals, delivered once/week as component parts. Takes about 45 minutes to prepare the recipe. Advantage is it's cheaper than Munchery, easier than doing your own shopping, is tasty and healthy. Heads off takeout, plus the menus are pretty broad so you make stuff you might normally not cook. Better once you've started to get your feet underneath you (week 3-5); until then, Munchery and family food is the way to go.
+
+### Painters tape (the blue stuff)
+
+We keep a roll of this next to the fridge along with a Sharpie and use it to label bottles (what they contain and the date/time they were put into the fridge so we know when we need to toss them and what we're feeding the kids).
+
+### [BabyConnect](http://www.baby-connect.com)
+
+You'll almost certainly need or want to track _something_ about your baby. For us, it's been meals and diapers. You may want or need to track something else. Using a paper log book is totally fine; we're nerds and have 4 adults caring for 2 babies so being able to track easily and being able to know things like "Right, I'm 30 minutes from home, the babysitter leaves in 60, and the boys ate 2 hours ago" is actually useful. It appears that all of the baby tracking apps suck; this one just sucks much less than the others and supports good stuff like multiple users for each child and has iOS and Android support.
 
 ## Books
 
