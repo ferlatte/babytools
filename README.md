@@ -62,10 +62,6 @@ We like the Chicco because they are lightweight, easy to use, and easily fit 2 t
 
 Delivery++. For us, this has meant we've eaten better than take out food when we've been fried and in-between friend and family food drops.
 
-### [Blue Apron](http://www.blueapron.com)
-
-Pre-built meals, delivered once/week as component parts. Takes about 45 minutes to prepare the recipe. Advantage is it's cheaper than Munchery, easier than doing your own shopping, is tasty and healthy. Heads off takeout, plus the menus are pretty broad so you make stuff you might normally not cook. Better once you've started to get your feet underneath you (week 3-5); until then, Munchery and family food is the way to go.
-
 ### Painters tape (the blue stuff)
 
 We keep a roll of this next to the fridge along with a Sharpie and use it to label bottles (what they contain and the date/time they were put into the fridge so we know when we need to toss them and what we're feeding the kids).
@@ -73,6 +69,10 @@ We keep a roll of this next to the fridge along with a Sharpie and use it to lab
 ### [BabyConnect](http://www.baby-connect.com)
 
 You'll almost certainly need or want to track _something_ about your baby. For us, it's been meals and diapers. You may want or need to track something else. Using a paper log book is totally fine; we're nerds and have 4 adults caring for 2 babies so being able to track easily and being able to know things like "Right, I'm 30 minutes from home, the babysitter leaves in 60, and the boys ate 2 hours ago" is actually useful. It appears that all of the baby tracking apps suck; this one just sucks much less than the others and supports good stuff like multiple users for each child and has iOS and Android support.
+
+### [Dadgear diaper backpack](http://www.amazon.com/DadGear-Backpack-Diaper-Bag-Solid/dp/B000O1SLSI)
+
+This has been a good diaper bag for us; it's really nice to have a backpack instead of a bag. As a bonus, here's our [packing list](diaper-bag.md) for the diaper bag.
 
 ## Books
 
