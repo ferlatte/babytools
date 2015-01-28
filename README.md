@@ -86,7 +86,7 @@ This has been a good diaper bag for us; it's really nice to have a backpack inst
 
 ### [High Contrast Mobile](http://www.amazon.com/Manhattan-Toy-Wimmer-Ferguson-Infant-Stim-Mobile/dp/B00009ZIKH)
 
-At about 1-2 months babies can't see very well. We did notice that a high contast mobile was a huge hit. The cards range from black and white to basic colors as your baby's vision improves. It was one of the few things that held interest/attention for more than 10 minutes. 
+At around 1-2 months the common issues(hungry, wet or sleepy) weren't fixing our baby's frustration. We did notice that a high contast mobile was a huge hit. At this age babies can't see very well so the cards range from black and white to basic high contrast colors. It's one of the few things that held interest/attention for more than 10 minutes and has a bonus in helping physical/visual development. 
 
 ## Books
 
