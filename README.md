@@ -30,6 +30,10 @@ These things are pretty great and not super fiddly. We have about 4 per baby in 
 
 Don't buy baby clothes; get them from friends who desperately want to get rid of them. Bonus: they are already stained, so you can stop worrying about keeping your baby impeccably stylish and start worrying about keeping the robots running and taking naps.
 
+### Free breast pump
+
+The Affordable Care Act includes a [provision](https://www.healthcare.gov/coverage/breast-feeding-benefits/) that mandates coverage for a breast pump through your health insurance provider in most cases. This means you can get a free breast pump worth $300. [Yummymummy](https://yummymummystore.com/) makes the process extremely simple for some insurance providers (ie Atena).
+
 ### [Boon Lawn Countertop Drying Rack](http://smile.amazon.com/Boon-Lawn-Countertop-Drying-Green/dp/B004OR1DTC)
 
 Great for bottle/breastpump part drying. Remember: lots of little fiddly parts.
@@ -46,9 +50,15 @@ We're using disposable diapers for now. Pampers appear to be the best as far as 
 
 We got a bunch of soft microfiber cloths to keep at the changing table. Useful for drying bottoms (a dry bottom is a non-chafing bottom!) and cleaning up assorted messes.
 
-### Extra [changing pad covers](http://www.diapers.com/p/kushies-deluxe-change-pad-flannel-boy-38335). 
+### Changing Pad
+
+##### Extra [changing pad covers](http://www.diapers.com/p/kushies-deluxe-change-pad-flannel-boy-38335) 
 
 We bought a bunch of them. You want to be able to wash them easily.
+
+####bu# [Keekaroo Diaper Changer](http://www.amazon.com/Keekaroo-Peanut-Diaper-Changer-Solid/dp/B009A7VTUO)
+
+Alternate option to changing pad with covers. This is great for putting on top of a dresser. You won't need any covers as it cleans super easy.
 
 ### [Nursing pillow](http://www.amazon.com/gp/product/B003TSDMH8/)
 
