@@ -56,7 +56,7 @@ We got a bunch of soft microfiber cloths to keep at the changing table. Useful f
 
 We bought a bunch of them. You want to be able to wash them easily.
 
-####bu# [Keekaroo Diaper Changer](http://www.amazon.com/Keekaroo-Peanut-Diaper-Changer-Solid/dp/B009A7VTUO)
+##### [Keekaroo Diaper Changer](http://www.amazon.com/Keekaroo-Peanut-Diaper-Changer-Solid/dp/B009A7VTUO)
 
 Alternate option to changing pad with covers. This is great for putting on top of a dresser. You won't need any covers as it cleans super easy.
 
