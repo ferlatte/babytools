@@ -80,9 +80,9 @@ We keep a roll of this next to the fridge along with a Sharpie and use it to lab
 
 You'll almost certainly need or want to track _something_ about your baby. For us, it's been meals and diapers. You may want or need to track something else. Using a paper log book is totally fine; we're nerds and have 4 adults caring for 2 babies so being able to track easily and being able to know things like "Right, I'm 30 minutes from home, the babysitter leaves in 60, and the boys ate 2 hours ago" is actually useful. It appears that all of the baby tracking apps suck; this one just sucks much less than the others and supports good stuff like multiple users for each child and has iOS and Android support.
 
-### [Dadgear diaper backpack](http://www.amazon.com/DadGear-Backpack-Diaper-Bag-Solid/dp/B000O1SLSI)
+### [Tactical Baby Gear diaper backpack](https://tacticalbabygear.com/collections/backpacks/products/tbg-day-pack-2-0)
 
-This has been a good diaper bag for us; it's really nice to have a backpack instead of a bag. As a bonus, here's our [packing list](diaper-bag.md) for the diaper bag.
+We recently upgraded from the [DadGear diaper backpack](https://www.dadgear.com/product-category/dad-diaper-backpack/) and we're thrilled. Nicer to carry and fits @ferlatte at 6'3". It's really nice to have a backpack instead of a bag. As a bonus, here's our [packing list](diaper-bag.md) for the diaper bag.
 
 ### [High Contrast Mobile](http://www.amazon.com/Manhattan-Toy-Wimmer-Ferguson-Infant-Stim-Mobile/dp/B00009ZIKH)
 
