@@ -10,7 +10,7 @@ It has been supremely important to run the laundry, dish washer, and Roomba regu
 
 ### Trade nights.
 
-You are adults. Adults need sleep. Babies need sleep also, but not the same way adults do. Instead of having both of you exhausted and fried from being up all night, trade nights: one adult sleeps with the babies and feeds/soothes/changes them at night, the other sleeps in their own bed with earplugs and an eyemask and sleeps as long as they can. This appears to be working for us; I don't know how long we will sustain it.
+You are adults. Adults need sleep. Babies need sleep also, but not the same way adults do. Instead of having both of you exhausted and fried from being up all night, trade nights: one adult sleeps with the babies and feeds/soothes/changes them at night, the other sleeps in their own bed with earplugs and an eyemask and sleeps as long as they can. This worked for us as long as they were waking up > 1 time a night each. 
 
 ### Pragmatism is a good strategy.
 
