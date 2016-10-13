@@ -42,6 +42,10 @@ Great for bottle/breastpump part drying. Remember: lots of little fiddly parts.
 
 This is how you will wash your bottle nipples, breast pump parts, and other small things.
 
+### [OXO Tot Bottle Brush](https://www.amazon.com/OXO-Bottle-Nipple-Cleaner-Orange/dp/B0038JDVCE)
+
+Best bottle brush and bonus! It's a great dish brush for when you're finally out of bottles.
+
 ### Pampers
 
 We're using disposable diapers for now. Pampers appear to be the best as far as ease of use at 3AM and lowest amount of blow outs. Our hospital used them as well.
