@@ -10,7 +10,7 @@ It has been supremely important to run the laundry, dish washer, and Roomba regu
 
 ### Trade nights.
 
-You are adults. Adults need sleep. Babies need sleep also, but not the same way adults do. Instead of having both of you exhausted and fried from being up all night, trade nights: one adult sleeps with the babies and feeds/soothes/changes them at night, the other sleeps in their own bed with earplugs and an eyemask and sleeps as long as they can. This worked for us as long as they were waking up > 1 time a night each. 
+You are adults. Adults need sleep. Babies need sleep also, but not the same way adults do. Instead of having both of you exhausted and fried from being up all night, trade nights: one adult sleeps with the babies and feeds/soothes/changes them at night, the other sleeps in their own bed with earplugs and an eyemask and sleeps as long as they can. This worked for us as long as they were waking up > 1 time a night each.
 
 ### Pragmatism is a good strategy.
 
@@ -56,7 +56,7 @@ We got a bunch of soft microfiber cloths to keep at the changing table. Useful f
 
 ### Changing Pad
 
-##### Extra [changing pad covers](http://www.diapers.com/p/kushies-deluxe-change-pad-flannel-boy-38335) 
+##### Extra [changing pad covers](http://www.diapers.com/p/kushies-deluxe-change-pad-flannel-boy-38335)
 
 We bought a bunch of them. You want to be able to wash them easily.
 
@@ -90,7 +90,11 @@ We recently upgraded from the [DadGear diaper backpack](https://www.dadgear.com/
 
 ### [High Contrast Mobile](http://www.amazon.com/Manhattan-Toy-Wimmer-Ferguson-Infant-Stim-Mobile/dp/B00009ZIKH)
 
-At around 1-2 months the common issues(hungry, wet or sleepy) weren't fixing our baby's frustration. We did notice that a high contast mobile was a huge hit. At this age babies can't see very well so the cards range from black and white to basic high contrast colors. It's one of the few things that held interest/attention for more than 10 minutes and has a bonus in helping physical/visual development. 
+At around 1-2 months the common issues(hungry, wet or sleepy) weren't fixing our baby's frustration. We did notice that a high contast mobile was a huge hit. At this age babies can't see very well so the cards range from black and white to basic high contrast colors. It's one of the few things that held interest/attention for more than 10 minutes and has a bonus in helping physical/visual development.
+
+### First Aid kit
+
+A nurse friend gave us a great [basic first aid kit](first-aid.md) designed for people without formal medical training.
 
 ## Books
 
