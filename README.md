@@ -12,6 +12,8 @@ It has been supremely important to run the laundry, dish washer, and Roomba regu
 
 You are adults. Adults need sleep. Babies need sleep also, but not the same way adults do. Instead of having both of you exhausted and fried from being up all night, trade nights: one adult sleeps with the babies and feeds/soothes/changes them at night, the other sleeps in their own bed with earplugs and an eyemask and sleeps as long as they can. This worked for us as long as they were waking up > 1 time a night each.
 
+If you are exclusively breast feeding, this obviously won't work. In order to maximize sleep, mom wakes up and feeds, dad takes over and changes diaper and soothes baby back to sleep. You're each up for about an hour then sleeping for 2-4. 
+
 ### Pragmatism is a good strategy.
 
 This is probably because we have twins. We don't have time to deal with parental freakouts because they require food and changing and sleeping and soothing all the time. This is great; all of the concerns about nipple confusion and baby classical music and the other crazy stuff goes away. The kids are alright, just be a mammal.
